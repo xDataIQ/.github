@@ -1,3 +1,3 @@
 # xDataIQ
 
-🍿 Coming Soon!! - December 31st
+🍿 Coming Soon!! - June 30th 
